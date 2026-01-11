@@ -64,6 +64,4 @@ Contact
 
 If you have any questions regarding privacy or content rights, you can contact:
 
-support@sacredquran.app
-
-Si quieres, también te lo convierto en versión legal corta para Apple Review Notes.
+zamzamtech.chile@gmail.com
