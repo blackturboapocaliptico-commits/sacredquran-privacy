@@ -1,0 +1,2 @@
+# sacredquran-privacy
+Copyrights
